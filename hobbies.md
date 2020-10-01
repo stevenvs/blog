@@ -1,6 +1,8 @@
 ### HOBBY
 En mi tiempo libre suelo hacer mucho deporte, me gusta hacer cualquier tipo de deporte como jugar al baloncesto o hacer ciclismo ya sea en compañia o solo, a veces voy con un amigo al gimnasio hacer ejercicio o al aire libre.
-Tambien me gusta ver el deporte en Television o por internet 
+Actu
+Tambien me gusta ver el deporte en Television o por internet
+
 
 ![descarga](https://user-images.githubusercontent.com/71392489/93895225-e2c27700-fcef-11ea-8ce5-89ffb6c0a495.jpeg)
 
@@ -27,5 +29,5 @@ La música es una afición que tengo desde hace unos pocos años, la musica a ve
 
 https://www.musicnexo.com/blog/es/efectos-de-la-musica-cuerpo/
 
-En este link hay un pequeña descripcion de como afecta la musica al cerebro.
+En este link hay una pequeña descripcion de como afecta la musica al cerebro, es bastante interesante como cambia el comportamiento de las neuronas mediante estimulaciones auditivas.
  
