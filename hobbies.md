@@ -1,21 +1,22 @@
 ### HOBBY
 En mi tiempo libre suelo hacer mucho deporte, me gusta hacer cualquier tipo de deporte como jugar al baloncesto o hacer ciclismo ya sea en compañia o solo, a veces voy con un amigo al gimnasio hacer ejercicio o al aire libre.
-Actu
-Tambien me gusta ver el deporte en Television o por internet
+
+A parte de practicar también me gusta ver el deporte en Television o por internet, tal como partidos de baloncesto, carreras como el tour de francia o la vuelta ciclista a Esppaña.
 
 
 ![descarga](https://user-images.githubusercontent.com/71392489/93895225-e2c27700-fcef-11ea-8ce5-89ffb6c0a495.jpeg)
 
 ## INTERES SOBRE EL DEPORTE 
-Basicamente lo unico que hago cuando estoy aburrido o no tengo nada que hacer salgo hacer ejercicio, porque es sano 
+Básicamente lo unico que hago cuando estoy aburrido o no tengo nada que hacer salgo hacer ejercicio, porque es muy sano 
 y entretenido.
-Tambien busco nuevos deportes para hacer como padel o hockey o deportes inusuales en Europa como el beisbol, aunque principalmente destaco mas en el baloncesto ya que lo practico desde hace muchos años.
+Tambien suelo buscar nuevos deportes de interes para practicar y no hacer siempre los tipicos deportes, asi como el padel o el hockey o deportes inusuales en Europa como el beisbol, aunque principalmente destaco mas en el baloncesto ya que lo practico desde hace muchos años.
 En mi opinion el deporte es una actividad fisica y muy saludable, recomiendo a todo el publico praticar cualquier deporte, ya que ayuda a tener una buena salud mental y física, ademas aporta beneficios al cuerpo como mantener una buena condicion fisica o mejora la salud cardiovascular, y previene la mayoría de las enfermedades. 
 
 ## TECNOLOGIA 
-Mi otro hobbie podria ser la informatica o la tecnologia, cuando estoy con el movil estoy buscando noticias sobre avances tecnologicos actuales porqque me interesan las innovaciones tecnologicas, asi como la robotica  o la programmacion aunque me resulte dificil de entender y comprenderlo, ya que como estudiante estoy introduciendome a la informatica. 
-Los avances tecnologico parte de un inicio como cuando se creo el primer ordenador o cuando se creo el primer sistema operativo.
+Mi otro hobby podria ser la informática o la tecnología, cuando estoy con el movil siempre me interesa buscar noticias sobre avances tecnologicos actuales porque me interesan las innovaciones tecnologicas, asi como la robotica  o la programacion aunque me resulte dificil de entender y comprenderlo, ya que como estudiante estoy introduciendome a la informatica. 
+Los avances tecnologico parte de un inicio como cuando se creo el primer ordenador o cuando se creo el primer sistema operativo y es bastante curioso saber como esta compuesto un ordenador.
 
+En esta página todos los dias suben nuevos productos de distintas companyias de smartphones, actualizaciones de aplicaciones, nuevos software, noticias actuales, y muchas más cosas interesantes.
 https://www.xataka.com/
 
 ![images (1)](https://user-images.githubusercontent.com/71392489/93897859-de4b8d80-fcf2-11ea-9f2f-6e12970ed12a.jpeg)
